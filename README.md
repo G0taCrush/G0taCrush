@@ -27,3 +27,5 @@ South Park
 - $${\color{#FFD700} Kyle , stan , Clyde , craig , Bradley , Kenny , Red , Bebe , Token , Jimmy }$$
 
 # Will update soon 
+
+<img width="596" height="335" alt="Image" src="https://github.com/user-attachments/assets/2a49addf-8c77-457d-9146-ee1c9c0c3581" />
