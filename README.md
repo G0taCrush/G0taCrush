@@ -14,7 +14,7 @@ __I am very loyal and proactive!If I did anything that upset you, I apologize! J
 __I don't have many friends on pony town or the internet.Most of them are friends in real life__
 
 - I also play Roblox and Deltarune( im new btw ) and GI,
-- I don't like my favorite characters being insulted :/ also my honor
+- I don't like my favorite characters being insulted :/ i like peanut and bif from Bse most so iwc when talking w/me about them
 # **My fandom!!**
 
 - $${\color{#FFD700}Bully game . CRK . Dandy World . UT . FNAF . FNF . SOUTH PARK}$$
@@ -24,7 +24,6 @@ bully game
 - $${\color{#FFD700}Bif Taylor . Jimmy Hopkins . Pete kowalski . Gary Smith . Johnny Vincent . Peanut Romano . Pinky Gauthier . Tad Spencer . Derby Harrington . Kirby Olsen}$$
 
 South Park 
-
 - $${\color{#FFD700} Kyle , stan , Clyde , craig , Bradley , Kenny , Red , Bebe , Token , Jimmy }$$
 
 # Will update soon 
